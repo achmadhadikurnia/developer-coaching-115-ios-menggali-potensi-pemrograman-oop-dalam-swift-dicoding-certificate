@@ -13,7 +13,7 @@ Untuk kamu yang ingin mendapatkan sertifikat kehadiran, silakan untuk mendaftar 
 | 16.40 - 17.00 | Q&A pertanyaan dari komentar viewers YouTube                                                                                                                            |
 
 ## Event
-[View](https://www.dicoding.com/events/6938)
+[View](https://www.dicoding.com/events/7048)
 
 ## Certificate
 [View](/certificate/certificate.pdf)
